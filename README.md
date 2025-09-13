@@ -1,1 +1,1 @@
-# https://media.gettyimages.com/id/1353263851/vector/verified-stamp-imprint-seal-template-grunge-effect-vector-stock-illustration.jpg?s=2048x2048&w=gi&k=20&c=GpShL-MC9fJ0OXG3UqeSYpWVGhphhT57E044rpbepns
+
